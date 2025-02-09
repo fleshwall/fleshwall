@@ -1,4 +1,4 @@
-Dirk, he/him, 16 or 20.<br>
+Dirk, he/him, 20 bodily, SMH.<br>
 GBJ system. <br>
 Gay, FTM, autistic, ADHD, depression.<br>
 I like ponies, robots, video games, and daydreaming.<br>
