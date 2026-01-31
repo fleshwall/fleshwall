@@ -10,3 +10,5 @@ unsure about pronouns? assume canon ones. <br>
 if you cover us you will be hidden. <br>
 if youre generally annoying you'll be hidden. <br>
 hs2 skins and antis will be blocked. <br>
+
+found by protree or general hs area. i don't move for anyone, tough luck bozo. often offtab or afk, whisper anytime though.
